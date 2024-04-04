@@ -20,4 +20,4 @@ To contact me quickly and easily, DM me on Twitter. <a href="https://twitter.com
 If it makes more sense, you can also email me:
 
 General Inquiries: <cousewalton@gmail.com>
-Only have any quna serious: <zalatamaks44@gmial.com> 
+Only have any quna serious: <zalatamaks44@gmail.com> 
