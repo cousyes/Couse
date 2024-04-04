@@ -7,12 +7,12 @@ Interested in software, and a web development and  more  and cute things!
 
 
 
-🔭 Current:
+🔭 Current
 Now, i am a looking new profession, and then for a realtime now i learningб occasionally English.
 
 
 
-📫 Contact
+📫 Contact 
 
 To contact me quickly and easily, DM me on Twitter. <a href="https://twitter.com/cousyes">DM me on Twitter</a> 
 
